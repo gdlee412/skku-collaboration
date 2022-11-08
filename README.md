@@ -2,7 +2,8 @@
 
 VALORANT VALORANT VALORANT VALORANT
 - tmr after gong-comp
-
+- after gong-comp me cannot
+- me blood go byebye
 
 - COME TO VALORANT
 
