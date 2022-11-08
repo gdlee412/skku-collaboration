@@ -1,7 +1,7 @@
 # skku-collaboration
 
 VALORANT VALORANT VALORANT VALORANT
-tmr after gong-comp
+- tmr after gong-comp
 
 
 - COME TO VALORANT
